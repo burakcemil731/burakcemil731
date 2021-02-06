@@ -7,9 +7,9 @@
 
 - 🤝 I’m looking for help with **Throwbreaker App**
 
-- 👨‍💻 All of my projects are available at [portfolio.burakcemil.com](portfolio.burakcemil.com)
+- 👨‍💻 All of my projects are available at [portfolio.burakcemil.com](https://portfolio.burakcemil.com/)
 
-- 📝 I regularly write articles on [burakcemil.com](burakcemil.com)
+- 📝 I regularly write articles on [burakcemil.com](https://www.burakcemil.com/)
 
 - 💬 Ask me about **anything!**
 
