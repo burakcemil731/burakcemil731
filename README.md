@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **burty@hotmail.de**
 
-- 📄 Know about my experiences [https://abload.de/img/burakcemilwebdev6tk8c.jpg](https://abload.de/img/burakcemilwebdev6tk8c.jpg)
+- 📄 Know about my experiences
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
